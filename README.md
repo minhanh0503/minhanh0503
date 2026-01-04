@@ -25,7 +25,7 @@ I'm a computer science student with a passion for technology, security, and crea
 - Been playing piano since I was 4!  
 - Childhood dream: Attend music school for piano  
 - MBTI: ISFP (creativity + adaptability)  
-- Big fan of K-dramas & BigBang 🎤  
+- Big fan of K-dramas & tvshows or movies about medical  
 
 ---
 
