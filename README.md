@@ -46,11 +46,6 @@ I'm a computer science student with a passion for technology, security, and crea
 
 ---
 
-## 📊 GitHub Stats
-![Minh Anh's GitHub stats](https://github-readme-stats.vercel.app/api?username=minhanh0503&show_icons=true&theme=radical)
-
----
-
 > “Always eager to learn and connect with others who share my interests 🌱”
 
 <!--
