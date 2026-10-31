@@ -144,7 +144,7 @@ Currently interested in:
 ## Let's Connect
 
 **Portfolio:** [minhanh0503.github.io](https://minhanh0503.github.io/)
-**LinkedIn:** [linkedin.com/in/minh-anh-nguyen-82968021a](https://www.linkedin.com/in/minh-anh-nguyen-82968021a/)
+**LinkedIn:** [linkedin.com/in/minh-anh-0503-nguyen](https://www.linkedin.com/in/minh-anh-0503-nguyen/)
 **Email:** [nguyenminhanh290503@gmail.com](mailto:nguyenminhanh290503@gmail.com)
 
 ---
